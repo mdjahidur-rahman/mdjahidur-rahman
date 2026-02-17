@@ -72,8 +72,7 @@ Bachelor of Science – Computer Science, Jan 2020 – Jan 2025
 
 ## 📫 Connect with Me
 
-[LinkedIn](https://www.linkedin.com/in/md-jahidur/)  
-[GitHub](https://github.com/mjahidUNB3035)  
+[LinkedIn](https://www.linkedin.com/in/md-jahidur/) 
 
 ---
 
