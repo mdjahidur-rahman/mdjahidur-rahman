@@ -74,6 +74,8 @@ Bachelor of Science – Computer Science, Jan 2020 – Jan 2025
 
 [LinkedIn](https://www.linkedin.com/in/md-jahidur/) 
 
+[Email](mailto:rahmanzahidur68@gmail.com.com)
+
 ---
 
 ## 📊 GitHub Stats
